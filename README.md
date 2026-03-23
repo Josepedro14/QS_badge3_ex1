@@ -1,1 +1,0 @@
-# QS_badge3_ex1
